@@ -11,8 +11,4 @@
 ### Random Dev Quote
 ![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=dark)
 
-### Random Dev Meme
-
----
-![github](https://scontent.fhan15-1.fna.fbcdn.net/v/t1.15752-9/361127301_318741313828123_3303811590801563638_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=ae9488&_nc_ohc=09hmrFnFvkgAX-4-gSf&_nc_ht=scontent.fhan15-1.fna&oh=03_
 

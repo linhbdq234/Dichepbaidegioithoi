@@ -17,7 +17,9 @@
 
 ## MY IT BOYFRIEND
 ```
-2025 <3
+2 con người khác biệt vùng miền, sở thích, tính cách. Và tình yêu chính là sợi tơ gắn chặt họ lại với nhau.
+Trân trọng và yêu thương từng khoảnh khắc hiện tại, chuyện tương lai hãy đễ tương lai lo liệu!!
+
 ```
 
 

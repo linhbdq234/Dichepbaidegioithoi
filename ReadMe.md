@@ -27,5 +27,5 @@ In a relationship with NP <3
 26923
 `
 
-
+![](https://i.pinimg.com/originals/9d/67/5a/9d675a775c7d49139e171b1ab1c3418c.jpg)https://i.pinimg.com/originals/9d/67/5a/9d675a775c7d49139e171b1ab1c3418c.jpg)
 

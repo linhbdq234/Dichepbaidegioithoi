@@ -17,14 +17,13 @@
 
 ## MY IT BOYFRIEND
 ```
-2 con người khác biệt vùng miền, sở thích, tính cách. Và tình yêu chính là sợi tơ gắn chặt họ lại với nhau.
-Trân trọng và yêu thương từng khoảnh khắc hiện tại, chuyện tương lai hãy đễ tương lai lo liệu!!
+thanks sweetheart
 
 ```
 
 `
-In a relationship with NP <3 
-26923
+In a relationship with DH <3 
+8124
 `
 
 ![](https://i.pinimg.com/originals/9d/67/5a/9d675a775c7d49139e171b1ab1c3418c.jpg)https://i.pinimg.com/originals/9d/67/5a/9d675a775c7d49139e171b1ab1c3418c.jpg)

@@ -18,6 +18,8 @@
 ## MY IT BOYFRIEND
 ```
 thanks sweetheart
+Con người cần ít nhất một ước mơ, một lý do để kiên cường. Nếu trong tim không có chốn dừng chân, vậy đi đâu cũng là lạc lối".
+Trích phim: "Mùa Hè của Luca"
 
 ```
 
